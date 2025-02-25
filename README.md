@@ -11,4 +11,4 @@ tenho 28 anos, atualmente morando em Ribeirão Preto/SP e sendo mãe de 2 pets. 
 🚀 Metodologias Ágeis. (a vida é corrida e não dá pra perder tempo rs) <br>
 💬 Você pode me encontrar por aqui [Mônica Fontalva](https://www.linkedin.com/in/m%C3%B4nica-fontalva-silva-52034118b/) ou aqui [@moonicafontalva](https://www.instagram.com/moonicafontalva/?hl=pt)<br>
 <br>
-Aprimorando por aqui... 🔨
+Mais informações em andamento... 🔨
